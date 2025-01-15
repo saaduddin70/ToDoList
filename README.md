@@ -1,0 +1,13 @@
+<img width="929" alt="Screenshot 2024-12-29 at 3 05 37ΓÇ»PM" src="https://github.com/user-attachments/assets/ccfa4a76-1fe4-4bcd-8cfd-b9d3542aab62" />
+<img width="605" alt="Screenshot 2024-12-29 at 3 09 28ΓÇ»PM" src="https://github.com/user-attachments/assets/dcf63d63-c55c-48c0-aba1-4975945a1b67" />
+<img width="420" alt="Screenshot 2024-12-29 at 3 15 27ΓÇ»PM" src="https://github.com/user-attachments/assets/279f2450-42f0-4d85-8e3a-91eb1d8b2c9d" />
+<img width="752" alt="Screenshot 2024-12-29 at 3 16 02ΓÇ»PM" src="https://github.com/user-attachments/assets/4ad1f221-cc98-44a3-a810-b489424dd016" />
+<img width="585" alt="Screenshot 2024-12-29 at 3 24 31ΓÇ»PM" src="https://github.com/user-attachments/assets/e78920af-ecda-41fc-8e5e-0d0369664863" />
+<img width="1507" alt="Screenshot 2024-12-30 at 2 50 35ΓÇ»PM" src="https://github.com/user-attachments/assets/90638ed6-552b-45da-890f-517c3f32c277" />
+<img width="605" alt="Screenshot 2024-12-29 at 3 09 28ΓÇ»PM" src="https://github.com/user-attachments/assets/27710c12-3c68-4e0a-ba8d-f172ca3cd2cf" />
+<img width="1407" alt="Screenshot 2024-12-30 at 2 51 03ΓÇ»PM" src="https://github.com/user-attachments/assets/2e18add6-0b38-4160-9751-a569e2d1577d" />
+<img width="1400" alt="Screenshot 2024-12-30 at 2 56 30ΓÇ»PM" src="https://github.com/user-attachments/assets/b43ff2e8-add0-490c-905a-5585f0aa36ea" />
+<img width="1357" alt="Screenshot 2024-12-30 at 3 40 25ΓÇ»PM" src="https://github.com/user-attachments/assets/a38f3cd9-9c49-44df-bf32-e4dbc21bdc8a" />
+<img width="1680" alt="Screenshot 2024-12-31 at 11 53 03ΓÇ»PM" src="https://github.com/user-attachments/assets/8bac20c4-6018-44a0-8580-001dbffd0cbb" />
+<img width="395" alt="Screenshot 2024-12-31 at 10 19 08ΓÇ»PM" src="https://github.com/user-attachments/assets/e6efdb5c-77ac-448e-9f23-8ad7074c87da" />
+<img width="388" alt="Screenshot 2024-12-31 at 12 43 48ΓÇ»AM" src="https://github.com/user-attachments/assets/0f54350b-2cd6-4553-bb76-a9d56fbac599" />
